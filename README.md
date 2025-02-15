@@ -7,4 +7,4 @@ Silakan gunakan format berikut:<br>
 
 Berikut adalah daftar Volunter yang diterima:
 * Oon Arfiandwi, [oo.or.id](https://oo.or.id).
-* Agus Faisal, [Linkedin](https://www.linkedin.com/in/gilang-adhan/).
+* Agus Faisal, [Instagram](https://www.instagram.com/__faisxl/).
